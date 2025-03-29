@@ -21,7 +21,7 @@ Once confirmed:
 
 If you're unable to access your account, you may request deletion manually by contacting us:
 
-- Email: **levanhiep1991@gmail.com**
+- Email: **traios.contact@gmail.com**
 - Subject: **Request to Delete My Account**
 - Include: Your **registered email address** and a brief request to delete your data.
 

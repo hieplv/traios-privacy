@@ -102,4 +102,4 @@ We may update this Privacy Policy from time to time. Changes will be posted with
 
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
-**Email:** levanhiep1991@gmail.com 
+**Email:** traios.contact@gmail.com
